@@ -1,8 +1,8 @@
-# KCC Kisan Karj Mafi 2025
+# KCC Kisan Karj Mafi 2025 - Apply Now Before Last Date
 
 ## A Big Relief for Farmers: KCC Loan Waiver Announced in the February 1 Budget
 
-### [KCC Kisan Karj Maafi Apply Now](https://lakhimpurkheri.com/kcc-kisan-karj-mafi-2025/)
+### 👉 [KCC Kisan Karj Maafi Apply Now](https://lakhimpurkheri.com/kcc-kisan-karj-mafi-2025/)
 
 ### KCC Kisan Karj Mafi 2025
 
